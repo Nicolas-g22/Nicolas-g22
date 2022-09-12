@@ -1,4 +1,4 @@
-- 🐀 @Nicolas-g22
+- 🐀🍷 @Nicolas-g22
 - 🌱 BTS SNIR-1 TW
 - 📫 nicolas.guillier22@gmail.com
 
